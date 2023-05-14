@@ -1,4 +1,5 @@
 Инструкция перенесена сюда - https://github.com/rashevskyv/4IFIR
+
 Группа в телеграме - https://t.me/kefir_switch/48074
 
 _______________
